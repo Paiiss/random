@@ -1,1 +1,1 @@
-Ye kontol
+pake aja ini :)
